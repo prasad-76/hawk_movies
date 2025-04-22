@@ -1,0 +1,1 @@
+reference design file https://www.figma.com/file/ggfQao90xHnQariaguBHq2/OTT-Dark-Theme-Website-UI-Design-Template-for-Media-Streaming%2C-Movies-and-TV-(-FREE-Editable-)-(Community)?type=design&node-id=34-3&mode=design&t=BxQl0gF4mOpjIoJw-0
